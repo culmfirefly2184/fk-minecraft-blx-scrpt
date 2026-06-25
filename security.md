@@ -9,7 +9,7 @@ The **⛏️ Fake Minecraft Roblox Scripts** is the most powerful automation too
 
 <div align="center">
 
-[![Download Fake Minecraft Roblox Scripts](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/culmfirefly2184)
+[![Download Fake Minecraft Roblox Scripts](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/culmfirefly2184)
 
 </div>
 
@@ -198,7 +198,7 @@ One script. Blocky domination. Zero cost.
 
 <div align="center">
 
-[![Download Fake Minecraft Roblox Scripts](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/culmfirefly2184)
+[![Download Fake Minecraft Roblox Scripts](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/culmfirefly2184)
 
 **Version 2026.122.1** — Auto mine. Teleport. ESP. Free forever.
 
